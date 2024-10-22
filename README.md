@@ -1,0 +1,8 @@
+- 👋 Hi, I’m David
+- 👀 I’m a junior Mechanical Engineer at Worcester Polytechnic Institute
+- 💞️ I’m looking to collaborate on literally anything interesting. I love working on new and complex projects
+- 📫 Here is how to reach me
+  - Personal Email:Davidstrom612@gmail.com
+  - School Email:Dstrom@wpi.edu
+  - Mobile Phone:(508) 548-3708
+- 😄 Pronouns: He/Him
